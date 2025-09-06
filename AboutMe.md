@@ -1,1 +1,1 @@
-Hi, I’m Rakshitha, pursuing my Master’s at UAlbany.
+Hi, I’m Rakshitha, pursuing my Master’s at UAlbany.I’m passionate about coding and curious about learning new technologies, but I also enjoy creative outlets like painting and art. I used to chase perfection in everything I did, but I realized that it often held me back. Now, I focus on enjoying the process—whether it’s experimenting with code or colors—because for me, growth matters more than perfection. I see myself as a learner who thrives on curiosity and creativity, always excited to keep improving along the way.
